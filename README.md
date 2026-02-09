@@ -1,1 +1,1 @@
-# cybers-curit-.github.io
+# cybers-curit.github.io
